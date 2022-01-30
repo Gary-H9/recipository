@@ -1,4 +1,4 @@
-# Gran's Empire Biscuits 👵🏻
+# Gran's Empire Biscuits
 
 Oven 🔥 - 170°C 
 
@@ -27,7 +27,7 @@ Time ⏲️ - ~40 minutes
 8. Add the icing to your biscuits.
 9. Add the glazed cherry (optional).
 10. Allow time for the icing to set. 
-9. Enjoy. 😁
+11. Enjoy. 😁
 
 ## Original 
 
